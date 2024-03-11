@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **DevOps culture**
 
-- 📫 How to reach me **thakursonalika123@gmail.com**
+- 📫 How to reach me **thakursonalika123@gmail.com** / **https://www.linkedin.com/in/sonalika-singh-55264a22a/**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
